@@ -32,6 +32,31 @@ Crowngold offers a robust casino experience tailored for both Australian and Can
 - Loyalty system and frequent promo events
 - Designed for fast access and mobile gameplay
 
+## 🎰 WinSpirit Casino – Canada 🇨🇦  
+**Link:** [WinSpirit Casino](https://winspirit-game.com/click?o=1&a=10131&c=79&link_id=10)
+
+**Overview:**  
+WinSpirit is a newer casino gaining popularity in Canada thanks to its fast registration, clean UI, and solid selection of slots and live games. It supports CAD and offers frequent promo codes.
+
+**Welcome Bonus:**  
+Up to C$1,000 + 100 Free Spins
+
+**Bonus Breakdown:**  
+- **1st Deposit:** 100% up to C$500 + 50 Free Spins  
+- **2nd Deposit:** 50% up to C$300 + 25 Free Spins  
+- **3rd Deposit:** 75% up to C$200 + 25 Free Spins  
+
+**Wagering Requirements:**  
+- **Bonuses:** 40x  
+- **Free Spins:** 45x  
+
+**Highlights:**  
+- CAD support & fast withdrawals  
+- Weekly cashback & reload bonuses  
+- Clean design and easy mobile play  
+
+**Region Availability:** 🇨🇦 Canada only
+
 
   ## 🎰 7Bit Casino – Global
 **Link:** [7Bit Casino](https://7bit.partners/p9a17e30d)
