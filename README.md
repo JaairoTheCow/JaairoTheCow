@@ -1,26 +1,11 @@
 # Top-Rated Crypto Casino
 A curated selection of online crypto casinos personally reviewed and tested across deposits, withdrawals, bonuses, and overall user experience. 
 
-## 🎰 Crownplay Casino – AU & CA
-
-**AU Link:** [Crownplay AU](https://crownplaylink.com/o1c87552a)  
-**CA Link:** [Crownplay CA](https://crownplaylink.com/o012b7cba)
-
-### Overview
-Crownplay is a sleek, modern casino platform available to players in both Australia and Canada. It offers a wide variety of games, from high-volatility slots to professional live dealer tables. Strong bonuses, intuitive UI, and smooth mobile support make it ideal for both beginners and regulars.
-
-### Key Features
-- Available in 🇦🇺 Australia and 🇨🇦 Canada
-- Supports both fiat (AUD/CAD) and crypto payments
-- Weekly promos and seasonal tournaments
-- Fast withdrawals and helpful support team
-- Optimized for mobile and desktop
-
 
 ## 🏆 Crowngold Casino – AU & CA
 
-**AU Link:** [Crowngold AU](https://crowngoldlink.com/odc360284)  
-**CA Link:** [Crowngold CA](https://crowngoldlink.com/o305ace35)
+**AU Link:** [Crowngold AU](https://crowngoldlink.com/obbab7f3f)  
+**CA Link:** [Crowngold CA](https://crowngoldlink.com/o57b2c0dd) Bonus code: MAXGOLD150
 
 ### Overview
 Crowngold offers a robust casino experience tailored for both Australian and Canadian players. With its broad game selection, clean interface, and dependable payout system, it's a go-to for players looking for a reliable and entertaining crypto-friendly platform.
