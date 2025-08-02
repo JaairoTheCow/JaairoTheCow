@@ -4,7 +4,7 @@ A curated selection of online crypto casinos personally reviewed and tested acro
 
 ## 🏆 Crowngold Casino – AU & CA
 
-**AU Link:** [Crowngold AU](https://crowngoldlink.com/obbab7f3f)  
+**AU Link:** [Crowngold AU](https://crowngoldlink.com/o8381d858 )  
 **CA Link:** [Crowngold CA](https://crowngoldlink.com/o57b2c0dd) Bonus code: MAXGOLD150
 
 ### Overview
