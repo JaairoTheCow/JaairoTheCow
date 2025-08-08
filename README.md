@@ -4,8 +4,8 @@ A curated selection of online crypto casinos personally reviewed and tested acro
 
 ## 🏆 Skycrown Casino – AU & CA
 
-**AU Link:** [Skycrown AU](https://skycrownlink.com/oc568cfdf )  
-**CA Link:** [Skycrown CA](https://skycrownlink.com/o8677197c) Bonus code for both CA & AU: **SKYMAX125**
+**AU Link:** **[Skycrown AU](https://skycrownlink.com/oc568cfdf )**  
+**CA Link:** **[Skycrown CA](https://skycrownlink.com/o8677197c)** Bonus code for both CA & AU: **SKYMAX125**
 
 ### Overview
 Skycrown offers a robust casino experience tailored for both Australian and Canadian players. With its broad game selection, clean interface, and dependable payout system, it's a go-to for players looking for a reliable and entertaining crypto-friendly platform.
@@ -18,7 +18,7 @@ Skycrown offers a robust casino experience tailored for both Australian and Cana
 - Designed for fast access and mobile gameplay
 
 ## 🎰 WinSpirit Casino – Canada 🇨🇦  
-**Link:** [WinSpirit Casino](https://winspirit-game.com/click?o=1&a=10131&c=79&link_id=10)
+**Link:** **[WinSpirit Casino](https://winspirit-game.com/click?o=1&a=10131&c=79&link_id=10)**
 
 **Overview:**  
 WinSpirit is a newer casino gaining popularity in Canada thanks to its fast registration, clean UI, and solid selection of slots and live games. It supports CAD and offers frequent promo codes.
@@ -44,7 +44,7 @@ Up to C$1,000 + 100 Free Spins
 
 
   ## 🎰 7Bit Casino – Global
-**Link:** [7Bit Casino](https://7bit.partners/p9a17e30d)
+**Link:** **[7Bit Casino](https://7bit.partners/p9a17e30d)**
 
 **Overview:**  
 7Bit is one of the most recognized Bitcoin casinos worldwide, known for fast crypto payouts, retro-style UI, and consistent weekly bonuses.
