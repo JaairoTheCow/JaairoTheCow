@@ -2,13 +2,13 @@
 A curated selection of online crypto casinos personally reviewed and tested across deposits, withdrawals, bonuses, and overall user experience. 
 
 
-## 🏆 Crowngold Casino – AU & CA
+## 🏆 Skycrown Casino – AU & CA
 
-**AU Link:** [Crowngold AU](https://crowngoldlink.com/o8381d858 )  
-**CA Link:** [Crowngold CA](https://crowngoldlink.com/o57b2c0dd) Bonus code: MAXGOLD150
+**AU Link:** [Skycrown AU](https://skycrownlink.com/oc568cfdf )  
+**CA Link:** [Skycrown CA](https://skycrownlink.com/o8677197c) Bonus code for both CA & AU: **SKYMAX125**
 
 ### Overview
-Crowngold offers a robust casino experience tailored for both Australian and Canadian players. With its broad game selection, clean interface, and dependable payout system, it's a go-to for players looking for a reliable and entertaining crypto-friendly platform.
+Skycrown offers a robust casino experience tailored for both Australian and Canadian players. With its broad game selection, clean interface, and dependable payout system, it's a go-to for players looking for a reliable and entertaining crypto-friendly platform.
 
 ### Key Features
 - Operates in 🇦🇺 Australia and 🇨🇦 Canada
